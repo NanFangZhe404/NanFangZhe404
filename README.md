@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 Nice to meet u! I'm NanFangZhe, and a southerners who love computers and more love the motherland.
 
 <!--
 **NanFangZhe404/NanFangZhe404** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
